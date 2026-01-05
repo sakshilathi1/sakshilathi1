@@ -7,7 +7,7 @@ I'm always open to discussing **AI/ML projects**, **research collaborations**, o
 <div align="center">
   
 📧 **Email:** sakshilathiwork@gmail.com  
-🔗 **LinkedIn:** [[linkedin.com/in/sakshilathi](https://www.linkedin.com/in/sakshi-lathi/)
+🔗 **LinkedIn:** [linkedin.com/in/sakshilathi](https://www.linkedin.com/in/sakshi-lathi/)
 
 </div>
 
